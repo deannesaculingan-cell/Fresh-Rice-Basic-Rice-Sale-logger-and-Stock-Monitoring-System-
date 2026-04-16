@@ -1,0 +1,1 @@
+# Fresh-Rice-Basic-Rice-Sale-logger-and-Stock-Monitoring-System-
